@@ -1,0 +1,2 @@
+# notes
+about daily learning
